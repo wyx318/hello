@@ -1,2 +1,1 @@
-ni hao laowang 老王正是在下
-
+你好老王
